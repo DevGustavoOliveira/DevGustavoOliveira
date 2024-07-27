@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚 Estudando Desenvolvimento Web<br>🔭 Estou a procura de estágio
+📚 Estudando Desenvolvimento Web<br>🔭 Buscando oportunidades
 
 
 ## 🌐 Socials:
